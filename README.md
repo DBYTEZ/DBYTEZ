@@ -1,4 +1,4 @@
-## Hi there 👋
+c+h freely , I have a huge cudcomf so don't be shy to come up to me . (if I see c+h in ur name expect me to be sitting)
 
 <!--
 **DBYTEZ/DBYTEZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
