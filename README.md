@@ -1,4 +1,4 @@
-[mee!](https://media.tenor.com/wf8FWPVuUcUAAAAm/pochita-chainsaw-man.webp)
+![](https://media.tenor.com/wf8FWPVuUcUAAAAm/pochita-chainsaw-man.webp)
 c+h freely , I have a huge cudcomf so don't be shy to come up to me . (if I see c+h in ur name expect me to be sitting)
 
 
